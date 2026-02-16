@@ -5,7 +5,7 @@
 
 
 
-blk 19yo | hello i'm roman! i'm not as social as i used to be on here 
+blk 19yo | hello i'm roman! i'm not as social as i used to be on here
 
 but don't be ever afraid reach out to me i am very kind i promise..!
 </div>
