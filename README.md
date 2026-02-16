@@ -1,6 +1,8 @@
 <div align="center">
 
-![tumblr_72396ee667bd92df4936dc6490d684fa_0825205b_250](https://github.com/user-attachments/assets/a4eefe70-a102-4874-9f5f-abd42ac163f3)
+
+![haruaki-fusaishi-raging-loop](https://github.com/user-attachments/assets/5dc5621c-4c0a-4024-bdd7-89c809d65d52)
+
 
 
 blk 19yo | hello i'm roman! i'm not as social as i used to be on here 
