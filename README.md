@@ -1,5 +1,8 @@
 <div align="center">
 
+bmf & c + h friendly 🫶🏻🥹❤️‍🩹
+
+
 
 **[RENTRY](https://rentry.co/ruurelation)** ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎  **[ATABOOK](https://ragingloop.atabook.org)** 
 </div>
