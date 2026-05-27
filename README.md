@@ -1,6 +1,6 @@
 <div align="center">
 
-bmf & c + h friendly 🫶🏻🥹❤️‍🩹
+bmf & c + h friendly 🫶🏽🥹❤️‍🩹
 
 
 
