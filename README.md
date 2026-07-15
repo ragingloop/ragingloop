@@ -1,5 +1,4 @@
 <div align="center">
-<img width="246" height="293" alt="fortnite-bi-han" src="https://github.com/user-attachments/assets/b074ab4e-0710-409c-9ff2-8a7d05b01673" />
 
 
  hi bmf & c + h friendly 🫶🏽🥹❤️‍🩹
