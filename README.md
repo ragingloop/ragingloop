@@ -1,8 +1,5 @@
 <div align="center">
 
-
- hi bmf & c + h friendly 🫶🏽🥹❤️‍🩹
- 
 **[strawpage](https://earthrealm.straw.page)** ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ‎   ‎ ‎  **[sign my atabook](https://ragingloop.atabook.org)** 
 
 
